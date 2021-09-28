@@ -6,4 +6,6 @@
 * Mujer Maravilla
 * Linterna Verde
 * Robin
-* Scarlet Johanson (de incognito)
+* Volcán Negro !!!!
+* Scarlet Johanson (de incognito)!!!
+* Volcan Gris
